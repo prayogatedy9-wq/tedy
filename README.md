@@ -1,0 +1,2 @@
+# tedy
+latihan
